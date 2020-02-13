@@ -1,2 +1,0 @@
-# Sexy+girlfriend
-Cash creator
